@@ -1,0 +1,6 @@
+- 👋 Hi there, I’m @rahmisyahputri
+- 👀 I’m interested in tech that makes people live easier and solved people problems
+- 🌱 I’m currently learning and relearning and never ending learning about Product Management
+- 💞️ Now I’m looking for an Associate Product Manager role
+- 📫 You can easily reach me at syahputrirahmi1@gmail.com or wa.me/6282170072737
+- Oh, I think I will be a great and amazing PM someday✨
